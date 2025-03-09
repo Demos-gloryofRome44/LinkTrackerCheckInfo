@@ -1,4 +1,1 @@
 ok
-wgg
-krjfer
-вйвйц
