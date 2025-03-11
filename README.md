@@ -1,4 +1,3 @@
 okhojh
 sncs
-jhjh
-vj
+jh
